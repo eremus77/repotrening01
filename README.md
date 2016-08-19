@@ -1,3 +1,5 @@
 # repotrening01
 repo treningowe
-mieszkam w Gdańsku
+mieszkam w Gdyni
+
+nie lubie poniedziałku
